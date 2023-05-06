@@ -1,3 +1,3 @@
 # images
 
-![Frame 1 (2)](https://user-images.githubusercontent.com/87023339/236612984-50abab4b-a86f-4d28-a371-ae11c2984438.png)
+![Frame 1](https://user-images.githubusercontent.com/87023339/236613775-13d6df9c-6ff1-4191-a5c4-92047afe0e97.jpg)
